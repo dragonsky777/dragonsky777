@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 🔭 I’m currently working on a project in customer-obssessed mindset training, employee engagement and workplace culture
+- 🔭 I’m currently working on a project in customer-obssessed mindset, employee engagement and workplace culture dynamics
 - 🌱 I’m currently learning HTML and CSS
 - 👯 I’m looking to collaborate on some coding projects
 - 🤔 I’m looking for help in expending my codes

@@ -6,5 +6,4 @@
 - 💬 Ask me about customer service issues or workplace communication coaching
 - 📫 How to reach me: atlantis727272@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I can hit a flying apple from 10 yards with an arrow )->. Yep! I LOVE apples :) 
 -->
